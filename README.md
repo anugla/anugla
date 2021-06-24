@@ -3,7 +3,7 @@ Some stupid moron in the "furry" culture who takes pride and joy in bashing his 
 
 I primarily do `C`, `C++`, `Asm`, and `Python` (SOMETIMES). 
 
- - Discords: sylvain#4551, [Totally good server (NOT i made it in 2 seconds)](https://discord.gg/qTkn5NRPAJ)
+ - Discords: engrgnerng#4551, Hi
  - Twitters: [@vrchaterp](https://twitter.com/vrchaterp)
 
 # SYLEER
